@@ -7,6 +7,6 @@
 - 🤔 I’m looking for internship
 - 🌐 I do HTML, CSS, and Javascript.
 ___
-- 📫 How to reach me: Call 385+452+1355
+- 📫 How to reach me: Call 385-452-1355
 
 
